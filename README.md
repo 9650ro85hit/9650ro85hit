@@ -23,7 +23,7 @@ I'm eager to collaborate on projects that involve:
 ## 📫 Reach Me
 Feel free to connect with me on:
 - [LinkedIn](https://www.linkedin.com/in/rohitsen9685/)
-- Email: rohitsenhanu9685@gmail.com 
+- [Email](rohitsenhanu9685@gmail.com)
 
 ## 😄 Pronouns
 - He/Him
